@@ -1,2 +1,3 @@
 https://www.youtube.com/@diego_sandoval 
-diegosandoval.net
+
+https://diegosandoval.net
